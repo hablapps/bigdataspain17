@@ -1,1 +1,1 @@
-This repository will be made available well in advance before the workshop.
+Please, contact info@hablapps.com to gain access to the course repository.
